@@ -3,7 +3,9 @@ Karina Valdez
 
 Education:
 
-Graduated Nantucket High School
+Northeastern University - Khoury college of Computer Science
 
-Attending Northeastern University
-September 2024 - April 2028
+Candidate: Bachelor of Science in Cybersecurity and Business Administration
+
+Boston, MA
+September 2024 - May 2028
